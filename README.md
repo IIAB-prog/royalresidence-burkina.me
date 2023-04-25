@@ -1,0 +1,1 @@
+# royalresidence-burkina.me
